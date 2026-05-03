@@ -1,4 +1,7 @@
 # Komi Can't Communicate
+> [!NOTE] An assigment
+> This is an assigment that needed to be passed. It does not intend to criticize or harm any included series
+
 ![banner](banner.jpg)
 This is one of those romance anime i watched during the pandemic. That despite becoming a little boring later on. It's a good fluttering watch during it's special moments.
 
