@@ -1,5 +1,5 @@
 # Komi Can't Communicate
-> [!note] An assigment
+> An assigment
 > This is an assigment that needed to be passed. It does not intend to criticize or harm any included series
 
 ![banner](banner.jpg)
